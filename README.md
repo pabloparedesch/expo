@@ -23,3 +23,6 @@ https://www.canva.com/design/DAGPkZo_4Js/DfRhZ0mpvBJPk5f3zS9KDA/edit?utm_content
 expo laboratorio 
 https://www.canva.com/design/DAGTmS_xq-I/HS3WZ8qo1QW8OV1OJFd70g/view?utm_content=DAGTmS_xq-I&utm_campaign=designshare&utm_medium=link&utm_source=editor
 
+expo conectividad 
+https://www.canva.com/design/DAGXz3gq6K4/CXPOxYFbCdkwH-5GSTYKuw/view?utm_content=DAGXz3gq6K4&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=hc0dbe29ca0
+
